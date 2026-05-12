@@ -1,4 +1,4 @@
-# 
+# ultimate OBS Studio for PC | OBS Studio for Windows Automation | video-encoding + bitrate-control offers the most advanced OBS Studio for PC | OBS Studio for Windows automation,
 
 
 
